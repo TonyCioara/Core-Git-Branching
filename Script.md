@@ -23,7 +23,11 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Steve met the Unicorn King who granted him magic powers.
+Steve found a magic box that promised him magic powers.
+Little did he know it was a trap.
+Steve unleashed the demon of the zoo. It had the form of a panther but it had evil powers.
+After days of hiding from this demon, the magic unicorn, Alan shows up and saves the day.
+That is when Steve figured out he is no real and he lives in an imaginary world.
 The end.
 
 ## Cast
