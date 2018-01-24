@@ -27,7 +27,7 @@ He took a tentative step through the door and followed the stone path overgrown 
 Steve found a magic box that promised him magic powers.
 Little did he know it was a trap.
 Steve unleashed the demon of the zoo. It had the form of a panther but it had evil powers.
-After days of hiding from this demon, the magic unicorn, Alan shows up and saves the day.
+After days of hiding from this demon, the zookeeper, Alan turns out to be the Magic Unicorn and saves the day.
 That is when Steve figured out he is no real and he lives in an imaginary world.
 The end.
 
